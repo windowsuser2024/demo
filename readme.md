@@ -5,4 +5,4 @@ Watch out for Demo Version.
 www.demo.com
 
 ## Subscribe
-Join Live @ www.live.com
+Join Us Live @ www.live.com
